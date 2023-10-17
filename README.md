@@ -1,7 +1,3 @@
 # first
 ffffffffk；
-攻略
-  rnew    iueweb     
-  fje    nr   
-dsnruf    
-nvra    
+![Uploading 微信图片_20230817105112.png…]()
